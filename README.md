@@ -1,7 +1,7 @@
 
 # Embedded Systems Jobs in Bangaldesh
 
-For those who are looking to break into realm of Embedded Systems in Bangaldesh, follwoing list will help you in job hunting process.
+For those who are looking to break into realm of Embedded Systems in Bangladesh, follwoing list will help you in job hunting process.
  
 
 
